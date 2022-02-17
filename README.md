@@ -8,4 +8,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me:  [email](mailto:dhea2326@gmail.com)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: cry baby 
--->
